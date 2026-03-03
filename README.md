@@ -1,3 +1,0 @@
-# gustavoamaral
-Achievementsss
-s
